@@ -69,11 +69,14 @@ A quick reference for some of the most popular and current slang terms used by G
 ## Q–Z
 
 - **Rizz** — Charisma, flirting ability ("He's got rizz")
+- **Rizzler** — Someone with exceptional rizz
 - **Ratio** — Replies outnumber likes (often means backlash)
 - **Salty** — Bitter, upset
 - **Say less** — Understood, no need to explain more
 - **Sheesh** — Exclamation of surprise or approval
+- **Ship** — To support a romantic pairing of two people
 - **Simp** — Someone who does too much for someone they like
+- **Skibidi** — Nonsense word, can mean bad/cringe or used as filler (from Skibidi Toilet)
 - **Skull emoji / 💀** — Used to mean "I'm dead" (laughing)
 - **Sksksk** — Textual laughter, popularized by VSCO girls
 - **Slaps** — Something is really good (often music or food)
@@ -83,20 +86,26 @@ A quick reference for some of the most popular and current slang terms used by G
 - **Sus** — Suspicious, sketchy (popularized by "Among Us")
 - **Tea** — Gossip, news ("Spill the tea")
 - **Touch grass** — Go outside, get offline
-- **Vibe check** — Assessing someone’s mood or the atmosphere
+- **Understood the assignment** — Did exactly what was expected, nailed it
+- **Vibe check** — Assessing someone's mood or the atmosphere
 - **Vibing** — Enjoying oneself, feeling good
 - **W** — Win, good thing (e.g., "That's a W")
+- **Wig** — Something so good it blows your wig off (from drag culture)
 - **Yeet** — To throw energetically, or an exclamation
+- **Yap / Yapping** — Talking excessively, rambling
 
 ---
 
 ## Emojis & Shortcuts
 
 - **😭 (Crying emoji)** — Used for laughing or emotional, not always sadness
-- **💀 (Skull emoji)** — Indicates something is hilarious (“I’m dead”)
+- **💀 (Skull emoji)** — Indicates something is hilarious ("I'm dead")
 - **🔥 (Fire emoji)** — Something is great, cool, or "lit"
 - **🧢 (Cap emoji)** — Lying or exaggerating
 - **👀 (Eyes emoji)** — Watching, interested, or suspicious
+- **✨ (Sparkles emoji)** — Emphasis, making something seem special or ironic
+- **🫡 (Saluting emoji)** — Respect, acknowledgment, "yes sir"
+- **🤨 (Raised eyebrow emoji)** — Skepticism, suspicion
 
 ---
 
