@@ -185,6 +185,20 @@ A quick reference for some of the most popular and current slang terms used by G
 
 ---
 
+## Gaming Terms
+
+- **Buff** — Strengthen a character/weapon (opposite of nerf)
+- **Co-op** — Cooperative multiplayer mode
+- **Indie** — Independent game (not from major publisher)
+- **Main** — Your primary character/role
+- **Nerf** — Weaken a character/weapon in a game update
+- **OP** — Overpowered, too strong
+- **Poke** — Attack from distance to wear down opponent
+- **Queue** — Wait in line for a game match
+- **Knife** — Melee weapon; also to sneak attack
+
+---
+
 ## Notes
 
 - Slang evolves rapidly! Some words may fall out of use or shift in meaning.
