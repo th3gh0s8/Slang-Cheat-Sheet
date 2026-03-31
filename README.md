@@ -122,15 +122,25 @@ A quick reference for some of the most popular and current slang terms used by G
 - **TL;DR** — Too Long; Didn't Read
 - **WYD** — What You Doing?
 - **YMMV** — Your Mileage May Vary
+- **AMA** — Ask Me Anything
+- **BC** — Because
+- **IKR** — I Know, Right?
+- **IMO / IMHO** — In My (Humble) Opinion
+- **TBH** — To Be Honest
+- **WSP** — What's Up
 
 ---
 
 ## Notable Phrases
 
-- **"Bet"** — Agreement or “watch me”
+- **"Bet"** — Agreement or "watch me"
 - **"Say less"** — Understood, no need for more info
 - **"I'm weak" / "I'm dead"** — Hilarious, very funny
 - **"It's giving..."** — Has the vibe of...
+- **"Ate and left no crumbs"** — Did something perfectly
+- **"Understood the assignment"** — Nailed what was expected
+- **"No thoughts, head empty"** — Zoned out, not thinking
+- **"That's so random"** — Used ironically for something expected
 
 ---
 
@@ -139,5 +149,19 @@ A quick reference for some of the most popular and current slang terms used by G
 - Slang evolves rapidly! Some words may fall out of use or shift in meaning.
 - Context matters—meanings can depend on how and where a word is used.
 - Many phrases overlap with memes and online culture.
+- A lot of modern slang comes from TikTok, Twitch streamers, and hip-hop culture.
+- Some terms (like "skibidi" or "Ohio") are intentionally ironic or absurdist.
+
+---
+
+## Sources & Culture
+
+Popular sources of Gen Z/Alpha slang include:
+- **TikTok** - Short-form video trends
+- **Twitch** - Streamer lingo (Fanum Tax, mogging)
+- **Twitter/X** - Meme culture and abbreviations
+- **Hip-hop/Rap** - Rizz, gyatt, bussin', no cap
+- **Among Us** - Sus, impostor terminology
+- **Skibidi Toilet** - Absurdist humor terms
 
 ---
