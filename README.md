@@ -63,6 +63,7 @@ A quick reference for some of the most popular and current slang terms used by G
 - **Living rent free** — Something you can't stop thinking about
 - **Lmao** — Laughing My A** Off
 - **Lol** — Laughing Out Loud
+- **Lone wolf** — Someone who prefers to be alone, independent
 - **Lowkey** — Secretly, subtly, or slightly
 - **Main** — Main character, protagonist; also "main" as in favorite
 - **Menty B** — Mental breakdown
