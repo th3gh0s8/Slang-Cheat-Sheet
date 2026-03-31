@@ -47,28 +47,39 @@ A quick reference for some of the most popular and current slang terms used by G
 
 ## H–P
 
+- **Highkey** — Openly, obviously (opposite of lowkey)
 - **Hits different** — Feels or affects you in a unique way
+- **Homie** — Close friend, buddy
+- **Hype** — Excitement, energy, or something exciting
 - **I'm dead / 💀** — Something is really funny
 - **I'm weak** — Something is really funny
 - **Iykyk (If You Know, You Know)** — Insider reference, often used as a hashtag
 - **It's giving...** — Reminds me of, has the vibe of (e.g., "It's giving 90s vibes")
 - **Karen** — Entitled, demanding, often rude woman (stereotype)
+- **Kinda** — Kind of, somewhat
 - **L** — Loss, fail (e.g., "Take the L" = Accept defeat)
 - **Level 10 Gyatt** — Someone with an extremely large butt
+- **Lit** — Amazing, exciting, intoxicated, or lit up
 - **Living rent free** — Something you can't stop thinking about
-- **Main Character** — Acting like the star of your own story
+- **Lmao** — Laughing My A** Off
+- **Lol** — Laughing Out Loud
+- **Lowkey** — Secretly, subtly, or slightly
+- **Main** — Main character, protagonist; also "main" as in favorite
 - **Menty B** — Mental breakdown
 - **Mid** — Mediocre, average, not great
 - **Mog / Mogging** — Looking better than someone else, dominating them aesthetically
 - **Mood** — Something relatable, expresses feelings
 - **Nah** — No
+- **NGL** — Not Gonna Lie
 - **No chill** — Overreacting, not calm
 - **No cap** — Not a lie, for real
 - **NPC** — Non-Player Character, someone acting robotic or unoriginal
 - **Ohio** — Weird, strange, or cringe (from memes about Ohio being chaotic)
 - **On God** — Swear, promise, "for real"
+- **Oof** — Expression of sympathy, discomfort, or surprise
 - **Opp** — Opposition, enemy
 - **Periodt** — Emphasis, end of discussion
+- **Pookie** — Term of endearment for a loved one or friend
 - **POV** — Point Of View (used in stories and videos)
 - **Pick me** — Someone who seeks attention by claiming they're "not like others"
 - **Pop off** — To do something really well, excel
