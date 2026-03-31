@@ -1,30 +1,38 @@
 # Gen Z & Gen Alpha Slang Cheat Sheet
 
-A quick reference for some of the most popular and current slang terms used by Gen Z and Gen Alpha (2024–2025). Slang evolves quickly—terms may change or new ones may appear!
+A quick reference for some of the most popular and current slang terms used by Gen Z and Gen Alpha (2024–2026). Slang evolves quickly—terms may change or new ones may appear!
+
+*Last updated: March 2026*
 
 ---
 
 ## A–G
 
 - **AF** — As F*** (used for emphasis, e.g., "tired AF")
+- **Ate (and left no crumbs)** — Did something perfectly, nailed it
 - **Based** — Unapologetically oneself, not caring what others think
-- **Bet** — Okay, yes, agreement, or “watch me”
+- **Beckys** — Basic, average white girls (often plural)
+- **Bet** — Okay, yes, agreement, or "watch me"
 - **Bop** — A good song
 - **Boujee** — High-class, fancy
 - **Bussin'** — Really good, tasty, or cool (often about food)
 - **Cap / No Cap** — Lie / Not a lie (e.g., "That's cap" = That's a lie)
 - **Cheugy** — Out of date, trying too hard, not trendy
+- **Chronically online** — Someone who spends too much time on the internet
 - **Cringe** — Embarrassing or awkward
 - **Delulu** — Delusional, often in a playful way
 - **DMs** — Direct Messages (on social media)
 - **Drip** — Stylish or cool outfit/accessory
+- **Fanum Tax** — When someone takes a portion of your food (from streamer Fanum)
 - **Fam** — Close friends, "family" (by choice)
 - **Finsta** — Fake Instagram (private account for close friends)
 - **Flex** — To show off
 - **For real / FR** — Seriously, honestly
+- **Gatekeep** — Withholding information or excluding others from something
 - **Ghost** — To ignore someone (stop communicating without explanation)
 - **Glow up** — Transformation for the better, especially in appearance
 - **GOAT** — Greatest Of All Time
+- **Gyatt** — Exclamation for someone with a big butt (from "God Damn")
 
 ---
 
@@ -37,17 +45,24 @@ A quick reference for some of the most popular and current slang terms used by G
 - **It's giving...** — Reminds me of, has the vibe of (e.g., "It's giving 90s vibes")
 - **Karen** — Entitled, demanding, often rude woman (stereotype)
 - **L** — Loss, fail (e.g., "Take the L" = Accept defeat)
-- **Living rent free** — Something you can’t stop thinking about
+- **Level 10 Gyatt** — Someone with an extremely large butt
+- **Living rent free** — Something you can't stop thinking about
 - **Main Character** — Acting like the star of your own story
 - **Menty B** — Mental breakdown
 - **Mid** — Mediocre, average, not great
+- **Mog / Mogging** — Looking better than someone else, dominating them aesthetically
 - **Mood** — Something relatable, expresses feelings
+- **Nah** — No
 - **No chill** — Overreacting, not calm
 - **No cap** — Not a lie, for real
 - **NPC** — Non-Player Character, someone acting robotic or unoriginal
-- **On God** — Swear, promise, “for real”
+- **Ohio** — Weird, strange, or cringe (from memes about Ohio being chaotic)
+- **On God** — Swear, promise, "for real"
+- **Opp** — Opposition, enemy
 - **Periodt** — Emphasis, end of discussion
 - **POV** — Point Of View (used in stories and videos)
+- **Pick me** — Someone who seeks attention by claiming they're "not like others"
+- **Pop off** — To do something really well, excel
 
 ---
 
