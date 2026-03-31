@@ -91,8 +91,11 @@ A quick reference for some of the most popular and current slang terms used by G
 - **Rizz** — Charisma, flirting ability ("He's got rizz")
 - **Rizzler** — Someone with exceptional rizz
 - **Ratio** — Replies outnumber likes (often means backlash)
+- **Rofl** — Rolling On the Floor Laughing
 - **Salty** — Bitter, upset
+- **Same** — Relatable, I feel the same way
 - **Say less** — Understood, no need to explain more
+- **Shade** — Subtle disrespect or criticism
 - **Sheesh** — Exclamation of surprise or approval
 - **Ship** — To support a romantic pairing of two people
 - **Simp** — Someone who does too much for someone they like
@@ -102,17 +105,22 @@ A quick reference for some of the most popular and current slang terms used by G
 - **Slaps** — Something is really good (often music or food)
 - **Slay** — Do something exceptionally well, look amazing
 - **Snack** — Someone attractive
+- **Sorta** — Sort of, somewhat
 - **Stan** — To strongly support or be a very enthusiastic fan of someone/something
 - **Sus** — Suspicious, sketchy (popularized by "Among Us")
 - **Tea** — Gossip, news ("Spill the tea")
+- **Tho** — Though, however (used at end of sentence)
 - **Touch grass** — Go outside, get offline
 - **Understood the assignment** — Did exactly what was expected, nailed it
 - **Vibe check** — Assessing someone's mood or the atmosphere
 - **Vibing** — Enjoying oneself, feeling good
 - **W** — Win, good thing (e.g., "That's a W")
+- **Wanna** — Want to
 - **Wig** — Something so good it blows your wig off (from drag culture)
-- **Yeet** — To throw energetically, or an exclamation
+- **Woke** — Aware of social justice issues; also "awake" to truth
 - **Yap / Yapping** — Talking excessively, rambling
+- **Yeet** — To throw energetically, or an exclamation
+- **Yikes** — Expression of discomfort, secondhand embarrassment
 
 ---
 
