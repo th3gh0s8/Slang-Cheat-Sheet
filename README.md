@@ -9,29 +9,38 @@ A quick reference for some of the most popular and current slang terms used by G
 ## A–G
 
 - **AF** — As F*** (used for emphasis, e.g., "tired AF")
+- **Aight** — Alright, okay
 - **Ate (and left no crumbs)** — Did something perfectly, nailed it
 - **Based** — Unapologetically oneself, not caring what others think
 - **Beckys** — Basic, average white girls (often plural)
+- **Bestie** — Best friend, close friend (also used ironically)
 - **Bet** — Okay, yes, agreement, or "watch me"
 - **Bop** — A good song
 - **Boujee** — High-class, fancy
+- **Bro** — Friend, buddy (gender-neutral)
 - **Bussin'** — Really good, tasty, or cool (often about food)
 - **Cap / No Cap** — Lie / Not a lie (e.g., "That's cap" = That's a lie)
 - **Cheugy** — Out of date, trying too hard, not trendy
+- **Chill** — Relaxed, calm, or cool
 - **Chronically online** — Someone who spends too much time on the internet
 - **Cringe** — Embarrassing or awkward
+- **Cuz / Coz** — Because, or cousin/friend
 - **Delulu** — Delusional, often in a playful way
 - **DMs** — Direct Messages (on social media)
 - **Drip** — Stylish or cool outfit/accessory
 - **Fanum Tax** — When someone takes a portion of your food (from streamer Fanum)
 - **Fam** — Close friends, "family" (by choice)
+- **Facts** — Truth, something you agree with
 - **Finsta** — Fake Instagram (private account for close friends)
+- **Fire** — Hot, amazing, excellent
 - **Flex** — To show off
 - **For real / FR** — Seriously, honestly
 - **Gatekeep** — Withholding information or excluding others from something
 - **Ghost** — To ignore someone (stop communicating without explanation)
 - **Glow up** — Transformation for the better, especially in appearance
 - **GOAT** — Greatest Of All Time
+- **Gng** — Gang, close friend group
+- **Gotta** — Got to, must
 - **Gyatt** — Exclamation for someone with a big butt (from "God Damn")
 
 ---
