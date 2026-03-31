@@ -40,6 +40,7 @@ A quick reference for some of the most popular and current slang terms used by G
 - **Glow up** — Transformation for the better, especially in appearance
 - **GOAT** — Greatest Of All Time
 - **Gng** — Gang, close friend group
+- **Gonna** — Going to
 - **Gotta** — Got to, must
 - **Gyatt** — Exclamation for someone with a big butt (from "God Damn")
 
