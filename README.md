@@ -139,23 +139,36 @@ A quick reference for some of the most popular and current slang terms used by G
 
 ## Social Media & Text Abbreviations
 
-- **DMs** — Direct Messages
-- **FOMO** — Fear Of Missing Out
-- **GOAT** — Greatest Of All Time
-- **IYKYK** — If You Know, You Know
-- **MFW / MRW** — My Face/Reaction When
-- **OOTD** — Outfit Of The Day
-- **SMH** — Shaking My Head
-- **TFW** — That Feeling When
-- **TL;DR** — Too Long; Didn't Read
-- **WYD** — What You Doing?
-- **YMMV** — Your Mileage May Vary
+- **AFK** — Away From Keyboard
 - **AMA** — Ask Me Anything
 - **BC** — Because
+- **BRB** — Be Right Back
+- **BTW** — By The Way
+- **DMs** — Direct Messages
+- **EWW** — Expression of disgust
+- **FOMO** — Fear Of Missing Out
+- **FYI** — For Your Information
+- **GG** — Good Game
+- **GLHF** — Good Luck Have Fun
+- **GOAT** — Greatest Of All Time
+- **IDK** — I Don't Know
 - **IKR** — I Know, Right?
 - **IMO / IMHO** — In My (Humble) Opinion
+- **IYKYK** — If You Know, You Know
+- **JK** — Just Kidding
+- **MFW / MRW** — My Face/Reaction When
+- **OMW** — On My Way
+- **OOTD** — Outfit Of The Day
+- **OP** — Overpowered (gaming); Original Poster (forums)
+- **RN** — Right Now
+- **SMH** — Shaking My Head
 - **TBH** — To Be Honest
+- **TFW** — That Feeling When
+- **TL;DR** — Too Long; Didn't Read
+- **TTYL** — Talk To You Later
 - **WSP** — What's Up
+- **WYD** — What You Doing?
+- **YMMV** — Your Mileage May Vary
 
 ---
 
